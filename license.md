@@ -1,6 +1,6 @@
 # 💻 Office Activator Free — Free 2026 Download
 
-![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)
+![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square) ![Type](https://img.shields.io/badge/Type-KMS%20Activator-E53935?style=flat-square)
 
 Office Activator free activates Windows and Office in one click, free, without a license key. Works on the newest 2026 builds. **No payments. No surveys. No limits.**
 
